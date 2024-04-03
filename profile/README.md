@@ -6,6 +6,5 @@
 
 🛠🌍 Вперед к открытиям и новым достижениям!
 
-Связь: [@ashmarev](https://t.me/ashmarev)
+ОПеративная связь: [@ashmarev](https://t.me/ashmarev)
 
-Email: vis-lab@herzen.spb.ru
